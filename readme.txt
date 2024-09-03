@@ -1,0 +1,1 @@
+Bu application henüz tamamlanmamıştır.
